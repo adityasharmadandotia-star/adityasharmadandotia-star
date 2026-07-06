@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi i'm Aditya Sharma<br><br>(weather web app), Lumio Edits brand, and personal web projects<br><br>I'm looking to collaborate on - Web dev projects, SaaS ideas, or creative/tech crossover<br><br>work<br><br>I'm looking for help with - Scaling side projects and exploring AI integrations<br><br>I'm currently learning - Data Structures, full-stack development, and AI tools<br><br>Ask me about - Web development, entrepreneurship, photography, or anything tech
+Personal web projects<br><br>I'm looking to collaborate on - Web dev projects, SaaS ideas, or creative/tech crossover<br><br>work<br><br>I'm looking for help with - Scaling side projects and exploring AI integrations<br><br>I'm currently learning - Data Structures, full-stack development, and AI tools<br><br>Ask me about - Web development, entrepreneurship, photography, or anything tech
 
 
 ## 🌐 Socials:
